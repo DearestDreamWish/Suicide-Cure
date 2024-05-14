@@ -1,7 +1,5 @@
 # Suicide-Cure
-
-0. As words can be used for planting thoughts, your own feelings and thoughts can do the same.
-
+As words can be used for planting thoughts, your own feelings and thoughts can do the same.
 1. So fight with positive constructive interests against the thought patterns, that make you eager for pain.
 2. Try to understand what thoughts or feelings are heavy.
 3. Try to get relief of the heavy mind by trying making rythms for what you feel.
